@@ -53,4 +53,4 @@ Experience a seamless shopping journey for **home appliances**, **electronics**,
 
 **Reliable | Affordable | Branded | Delivered Nationwide**
 
-[Check All Home Appliances & Electronics Products](https://www.adibuja.in/categories/electronics-appliances)
+[Check All Home Appliances & Electronics Products](https://www.adibuja.com/categories/electronics)
