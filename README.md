@@ -1,4 +1,4 @@
-#Adibuja Home Appliances Online USA | Electronics & Industrial Supplies Store
+## Adibuja Home Appliances Online USA | Electronics & Industrial Supplies Store
 
 Discover the ultimate destination to **buy home appliances online in the USA** with a vast selection of **electronics** and **industrial supplies** all under one roof. From **smart kitchen appliances** to **office furniture procurement US**, our online store offers unbeatable **home appliances deals US** and **electronics sale USA** designed to fit your budget and lifestyle.
 
