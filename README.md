@@ -23,7 +23,7 @@ Upgrade your home with our collection of **smart kitchen appliances US** that co
 
 ## Marketplace for Industrial Suppliers & B2B Solutions in the US
 
-We also specialize in comprehensive **industrial supplies online US** for businesses and warehouses, ensuring you get the best in safety and productivity.
+We also specialize in comprehensive **industrial suppliers online US** for businesses and warehouses, ensuring you get the best in safety and productivity.
 
 ### Our Industrial Product Range Includes:
 - **Office furniture procurement US** with ergonomic designs  
